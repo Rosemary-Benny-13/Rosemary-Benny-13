@@ -2,7 +2,7 @@
 ## I'm Rosemary Benny
 - 👀 I’m interested in almost everything that, I haven't figured out my cup of tea.
 - 🌱 I’m currently learning the Meta Frontend Professional Certification Courses and also the Python Full Stack Development Course
-- 💞️ I’m looking forward to landing my first job
+- 💞️ I’m looking forward to landing my first full time job
 - 😄 Pronouns: She/Her
  ### Connect with me!
 <a href="https://www.linkedin.com/in/rosemary-benny007/">
